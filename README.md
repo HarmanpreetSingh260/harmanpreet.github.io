@@ -25,3 +25,5 @@
 |19/07/2024|Er.Kanwardeep Kalra| Madam taught us about corporate society and its different view points |
 |19/07/2024| Mr.Jaswinder Singh | Sir made our day with the most engaging session of science and made learning fun |
 |19/07/2024| **Departmental** | **Visit** |
+
+![Screenshot_2024-07-25-10-41-29-78_40deb401b9ffe8e1df2f1cc5ba480b12](https://github.com/user-attachments/assets/66f9641a-f807-49f1-96c6-053e03de92e4)
